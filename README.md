@@ -41,4 +41,5 @@ I am focused on developing real-world cybersecurity and AI projects to strengthe
 
 ---
 
-## 📌
+## 📧 houssainjacoum91@gmail.com
+   📞 0637605145
